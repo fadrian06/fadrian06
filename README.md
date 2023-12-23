@@ -1,5 +1,6 @@
 ### Hi there 👋
 
+I'm Franyer, and I'm on a mission to learn everything I can! 🚀📚 
 <!--
 **fadrian06/fadrian06** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
